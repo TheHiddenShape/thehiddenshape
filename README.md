@@ -1,1 +1,1 @@
-Artificial intelligence is neither virtuous nor vicious by nature, it is an instrument. And like any powerful instrument, it serves the hand that wields it. The world has changed a great deal, it is time to redefine what it has become.
+The world has changed a great deal, it is time to redefine what it has become.
